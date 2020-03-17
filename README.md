@@ -1,0 +1,2 @@
+# Bitcoin-Era
+Bitcoin Era algorithms such as the ones supposedly used by Bitcoin Era can read news and place matching trades automatically. The best thing with an algorithm is that it can accurately analyze big data within a fraction of a second. Consequently, it can take advantage of even the slightest market movement hence leading to high profitability.Click Here http://bit.ly/BTC-Era  https://www.completefoods.co/diy/recipes/bitcoin-revolution-is-there-a-bitcoin-revolution-app https://www.completefoods.co/diy/recipes/bitcoin-era-bitcoin-what-is-bitcoin-era
